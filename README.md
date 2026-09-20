@@ -216,4 +216,4 @@ Hercules Lighter is distributed as a **full free version** with **all features i
 Elevate your DJ experience today with a **safe download** of Hercules Lighter! Enjoy the complete package for your mixing needs.
 
 ---
-**Last updated:** 2026-09-20 14:37:01 UTC
+**Last updated:** 2026-09-20 18:06:09 UTC
